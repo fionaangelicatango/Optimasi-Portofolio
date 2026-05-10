@@ -1,1 +1,0 @@
-# Optimasi-Portofolio-Saham-LQ45
